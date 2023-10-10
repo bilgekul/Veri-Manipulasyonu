@@ -1,0 +1,1 @@
+# Veri-Manip-lasyonu
